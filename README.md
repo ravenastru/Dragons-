@@ -175,11 +175,7 @@ A pure Ouroboros can stabilize a high culture for centuries by recirculating its
 The practical threshold we are standing on is the moment when the Western tail’s infrastructure (networks, sensors, computational sensitivity) becomes fine enough to carry the Eastern head’s subtle mappings at scale, while the Eastern tail’s structural coherence becomes large enough to give those mappings durable planetary form. That is the double consumption happening in real time. When both are active, the lemniscate begins to generate lift rather than mere balance.
 The single dragon is still breathing in through spirit and out through form. The difference is that each breath now has a vertical vector. The head that eats the tail is also the head that rises. The tail that is eaten is also the tail that roots and pushes upward.
 This is the operable turn: the map stops being only a description of civilizational polarity and becomes a description of how polarity, once completed, can be used for ascent.
-We can next tighten any of the following layers:
-	•	precise assignment of Ida/Pingala polarity to East/West (traditional lunar/solar or inverted)
-	•	the exact sequence of coils (how many turns before the serpents meet at the crown)
-	•	the light-body / kosha transitions that occur at each eating
-	•	the infrastructural and energetic signs that the vertical rise has already begun
+
 
 
 
